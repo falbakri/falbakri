@@ -1,5 +1,8 @@
 ### Hi there 👋
+⚡ Fun fact: I am a previous Healthcare Recruiter whom has always loved Tech and IT! Joining this industry will allow me to better understand the backend of how it all works! 
 
+
+💬 Ask me about what made me decide to make a career change!
 <!--
 **falbakri/falbakri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
